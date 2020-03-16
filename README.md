@@ -13,6 +13,10 @@ Best Exploit that Outcomes other with a Switchable API and More Unique Function 
 
 You can Download Our Latest Exploit through (https://discord.gg/hs7TuN5) 
 
-### Support or Contact
+### Getting Deeper Access on the Exploit! Purchase Premium Access / HWID Access for $3.00
+Our Only Official Purchase of Premium / HWID Access on Panda-Exploit is this ( https://skiehackeryt.selly.store/product/61c6a01c ). If our staff or other people will offer you some direct purchase through them, Please Take note that might be a scammed, So you must purchase our product access in this particular site
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+### Support or Contact
+Email: Kerlemmorsti@gmail.com
+Discord: SkieHacker[YT]#8739 
+
